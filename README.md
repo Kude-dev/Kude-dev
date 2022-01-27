@@ -1,4 +1,4 @@
-- 👋 Hola, soy @Kude-dev y tengo las habilidades de:
+- 👋 Hola, soy @Kude-dev y mis habilidades son:
 
 -➾ 📟 ┆<ᴡᴇʙ ᴅᴇᴠᴇʟᴏᴘᴇʀ & ᴅᴇꜱɪɢɴᴇʀ />
 
